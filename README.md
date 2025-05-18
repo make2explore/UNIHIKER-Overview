@@ -30,7 +30,7 @@ Refer the [Documentation website](https://www.unihiker.com/) for more informatio
 
 - This tutorial of Overview of UNIHIKER M10 will be divided in 2 parts
 
-▶️  Meet the UNIHIKER – Game-Changer for Makers! 🔗  https://youtube.com/shorts/  
+▶️  Meet the UNIHIKER – Game-Changer for Makers! 🔗  https://youtube.com/shorts/obxuvQ6YX7Y  
 
 ▶️  This Tiny Dev Board is a BEAST! - UNIHIKER 🔗  https://youtube.com/shorts/    
 
