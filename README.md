@@ -32,7 +32,7 @@ Refer the [Documentation website](https://www.unihiker.com/) for more informatio
 
 ▶️  Meet the UNIHIKER – Game-Changer for Makers! 🔗  https://youtube.com/shorts/QtrhFLunwyg  
 
-▶️  This Tiny Dev Board is a BEAST! - UNIHIKER 🔗  https://youtube.com/shorts/obxuvQ6YX7Y      
+▶️  This Tiny Dev Board is a BEAST! - UNIHIKER 🔗  https://youtube.com/shorts/QtrhFLunwyg        
 
 -------------------------------------------------------------------------------------------------------
 📒 **Important Links**  
